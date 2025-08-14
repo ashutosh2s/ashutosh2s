@@ -2,7 +2,7 @@
 - 👀 I’m interested in  learning new things 
 - 🌱 I’m currently learning new technology
 - 💞️ I’m looking to collaborate on projects
-- 📫 How to reach me https://www.linkedin.com/in/ashutosh-singh-59139b320/
+- 📫 How to reach me www.linkedin.com/in/ashutosh2s
 - 😄 Pronouns: NOT VALID
 - ⚡ Fun fact: B.tech is a piece of cake 
 
